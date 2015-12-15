@@ -4,17 +4,15 @@
 
 1. **Dry ingredients.**
 
-    1. 2 cups minus 2 tablespoons
+    1. 2 cups minus 2 tablespoons (8 1/2 ounces) cake flour
 
-    2. (8 1/2 ounces) cake flour
+    2. 1 2/3 cups (8 1/2 ounces) bread flour
 
-    3. 1 2/3 cups (8 1/2 ounces) bread flour
+    3. 1 1/4 teaspoons baking soda
 
-    4. 1 1/4 teaspoons baking soda
+    4. 1 1/2 teaspoons baking powder
 
-    5. 1 1/2 teaspoons baking powder
-
-    6. 1 1/2 teaspoons coarse salt
+    5. 1 1/2 teaspoons coarse salt
 
 2. **Butter mixture.**
 
